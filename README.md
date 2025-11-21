@@ -269,7 +269,7 @@ JEREMY MUTUNGA - mutungajeremy84@gmail.com
 
 ## 📞 Support
 
-For support, email your-email@example.com or open an issue on GitHub.
+For support, email mutungajeremy84@gmail.com or open an issue on GitHub.
 
 ---
 
